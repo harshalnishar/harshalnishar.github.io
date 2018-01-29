@@ -1,2 +1,1 @@
-# harshalnishar.github.io
-Nondh Pothi
+# Nondh Pothi
